@@ -1,0 +1,2 @@
+This Game emotionally intense sci-fi horror experience, focused on survival, deep characters, and narrative-driven gameplay. The main character wakes up on an exoplanet,
+ Tau Ceti e, with no memory of who he is or how he got there. Through haunting flashbacks, he'll piece together the dramatic events that led to his current state.
